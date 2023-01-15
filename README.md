@@ -20,4 +20,4 @@ Just raise an issue, we will discuss it.
 
 ## Feedback
 
-If you have any feedback, please reach out to us at snone181@gmail.com
+If you have any feedback, please reach out to us at manolarohit24@gmail.com
